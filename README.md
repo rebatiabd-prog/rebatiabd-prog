@@ -9,8 +9,7 @@ Clean code. Real products. No shortcuts.
 
 ---
 
-📫 [LinkedIn](www.linkedin.com/in/
-hocine-abderrahmane-rebati) · [Email](mailto:[your-email])
+📫 [LinkedIn](https://linkedin.com/in/hocine-abderrahmane-rebati) · [Email](mailto:abdweb.dev15@outlook.com)
 
 ---
 
